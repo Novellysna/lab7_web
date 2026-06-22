@@ -3,8 +3,8 @@
 > Universitas Pelita Bangsa, Bekasi | Dosen: Agung Nugroho | T.A. 2024/2025
 
 ---
-## Nama : Ananda Friezy Eka Cahya
-## NIM : 312410151
+## Nama : Novellysna Nurziska
+## NIM : 312410131
 ## I241A
 ## 📋 Daftar Isi
 
